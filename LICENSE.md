@@ -1,4 +1,4 @@
-
+Enhance your Windscribe experience with premium Windscribe Addon | smart-DNS + server-switching, the #1 addon. Includes smart-DNS and server-switching for a safer and more private
 
 
 
